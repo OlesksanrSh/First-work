@@ -1,2 +1,2 @@
 # First-work
-Thak you for wisit i hope i future i will be better 
+Thak you for wisit i hope in future i will be better 
